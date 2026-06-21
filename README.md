@@ -25,7 +25,7 @@
 <p>I just wanna avoid accidentally talking to minors, sorry :c.
 <p>    
 <p>
-<p>I am usualy in 18+ either AFK-ish or wanting to int!! Feel free to bother me when I'm over there!!
+<p>I am usually in 18+ either AFK-ish or wanting to int!! Feel free to bother me when I'm over there!!
 <p>(If you want my actual socials, please whisp me, I'm not comfortable putting them out in the open...)
 
 </div>
